@@ -1,5 +1,5 @@
-# Start
+Ôªø# Start
 Test
 HOGE
 ssssss
-Ç†Ç†Ç†Ç†Ç†
+„ÅÇ„ÅÇ„ÅÇ„ÅÇ„ÅÇ„ÅÇ
